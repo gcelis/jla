@@ -1,5 +1,0 @@
-# Historia de Flash
-
-Flash es el alias de varios superhéroes en el universo DC, siendo el más conocido Barry Allen. Barry, un científico forense de Central City, obtiene sus poderes cuando un rayo golpea su laboratorio, empapándolo con productos químicos. Este accidente le otorga una velocidad sobrehumana, permitiéndole moverse y reaccionar a velocidades increíbles. Adoptando el nombre de Flash y un traje rojo distintivo, Barry utiliza sus habilidades para combatir el crimen y proteger a su ciudad, enfrentándose a villanos como el Capitán Frío, Gorilla Grodd y Reverse-Flash.
-
-Flash es también un miembro clave de la Liga de la Justicia, colaborando con otros superhéroes para enfrentar amenazas globales. Su velocidad no solo le permite correr a través del tiempo y el espacio, sino también vibrar a través de objetos sólidos y curarse rápidamente. A lo largo de su historia, Flash ha sido un símbolo de esperanza y optimismo, utilizando su ingenio y habilidades para superar desafíos aparentemente insuperables y demostrar que, con determinación y valentía, cualquier obstáculo puede ser vencido.
